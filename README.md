@@ -1,4 +1,3 @@
 # Blanket
-Blanket ka apna mza hai g
-what the fucking doing
-madara uchihs
+ye repo pai abhi kam jari hai aik do din tak aye gi 
+jo k aik dam tka tak phishing attack hoga 
